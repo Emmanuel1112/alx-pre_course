@@ -1,1 +1,1 @@
-I am learming so fast
+I am learning so fast
